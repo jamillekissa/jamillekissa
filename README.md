@@ -1,1 +1,1 @@
-## Bem vindo <3
+## Bem vindo
