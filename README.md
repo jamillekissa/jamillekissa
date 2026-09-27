@@ -22,4 +22,4 @@ Power BI · Business Intelligence · Azure
 
 ## 📫 Contato
 jamille.kissa.martins@gmail.com
-https://www.linkedin.com/in/jamille-kissa-martins-320971194?utm_source=share_via&utm_content=profile&utm_medium=member_ios
+https://www.linkedin.com/in/jamille-kissa-martins
